@@ -1,2 +1,2 @@
 # team-practise
-rabota v ekip
+rabota v ekip e vajna i trudna // promqnaaa
